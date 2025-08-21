@@ -1,3 +1,3 @@
 <div align="center">
 
-![kitty](https://ibb.co/8GyMhpV][img]https://i.ibb.co/8GyMhpV/download-1.gif)
+![KITTY](https://github.com/user-attachments/assets/35d39dbc-a294-4584-bd23-379f55d1b406)

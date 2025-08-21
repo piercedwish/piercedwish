@@ -30,6 +30,9 @@ MINOR!
 ## about me !
 
 if im playing pt im usally with my friends
+
 im very slow with replying/talking first so pls give me time!
+
 im from australia and my timezone is australian eastern standard time
+
 I LOVE CATS DEERS AND ALL ANIMALS

@@ -19,6 +19,8 @@ MINOR!
 
 **soundcloud** - *https://soundcloud.com/fuckbeni*
 
+**others** - *https://fakecrime.bio/9q*
+
 </div>
 
 ## fandoms im in / games i like!

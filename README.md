@@ -31,7 +31,7 @@ MINOR!
 
 ## about me !
 
-if im playing pt im usally with my friends
+if im playing pt im usally with my friends OR off tab to get my attention pls whisper ^^
 
 im very slow with replying/talking first so pls give me time!
 

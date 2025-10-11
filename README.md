@@ -37,4 +37,6 @@ im very slow with replying/talking first so pls give me time!
 
 im from australia and my timezone is australian eastern standard time
 
+i love music my fav artists r flooding, devi mccallion, fakemink, ect theres alot
+
 I LOVE CATS DEERS AND ALL ANIMALS

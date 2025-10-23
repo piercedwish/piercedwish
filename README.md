@@ -7,13 +7,19 @@
 
 MINOR!
 
-**i block freely!**
+**dni list**
+tcc peeps, rl gore enjoys (and drawn depending on what it is) 
 
+anything vril, alt right 4chan, blackpill, soyjaks, incels, anything related to those
+
+homophobes, anti trans, maga,
+
+proshppers, darkshippers, anyone obsessed or likes problematic/weird parafilia
 </div>
 
 **links/socials**
 
-**dc** - `watupimswag` or `91qd` (91qd is currently banned)
+**dc** - `fagggotlife` or `91qd` (91qd is currently banned)
 
 **pinterest** - *https://au.pinterest.com/benibenibenii/*
 

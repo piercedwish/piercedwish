@@ -7,7 +7,11 @@
 
 MINOR!
 
+</div>
+
+
 **dni list**
+
 tcc peeps, rl gore enjoys (and drawn depending on what it is) 
 
 anything vril, alt right 4chan, blackpill, soyjaks, incels, anything related to those
@@ -15,6 +19,8 @@ anything vril, alt right 4chan, blackpill, soyjaks, incels, anything related to 
 homophobes, anti trans, maga,
 
 proshppers, darkshippers, anyone obsessed or likes problematic/weird parafilia
+
+and ofcourse i also block freely
 </div>
 
 **links/socials**

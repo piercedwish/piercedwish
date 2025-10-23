@@ -19,7 +19,7 @@ anything vril, alt right 4chan, blackpill, soyjaks, incels, anything related to 
 
 homophobes, anti trans, maga,
 
-proshppers, darkshippers, anyone obsessed or likes problematic/weird parafilia
+proshppers, darkshippers, anyone obsessed or likes problematic/weird paraphilia
 
 and ofcourse i also block freely
 </div>

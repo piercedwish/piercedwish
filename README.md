@@ -7,6 +7,7 @@
 
 MINOR!
 
+if i dont reply on pt i am so so sorry u can whisper me and ill try to get back to u as soon as possible, im usally off tab :D
 </div>
 
 
